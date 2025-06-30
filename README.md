@@ -1,6 +1,6 @@
 ![](https://64.media.tumblr.com/6bd9d555bfc8613e05fdf8207b6688a7/51ebfba6ba1fc5b1-f3/s1280x1920/39414e6e2930cd724f8ab20cc826698d52e5e260.pnj)
 
-hey! i go by ishmy OR chance!!  both are my favorites so i don't mind as much! 
+hey! i go by Janey OR chance!!  both are my favorites so i don't mind as much! 
 	
  My pronouns are he/they obviously!I have not make any proper rentry yet so github it is! 
  
