@@ -4,8 +4,12 @@ hey! i go by Coiny OR chance!!  both are my favorites so i don't mind as much!
 	
  My pronouns are he/they obviously!I have not make any proper rentry yet so github it is! 
  
-ALSO ELLIOT, CHANCE , ISHMAEL , EUNOIA IS SO ME!!! theyre act just like me srs  . . . <333<-
+I am an CHANCE fiction kin! i prefer to be seen as chance . --
+FORSAKEN FANS can FREELY INT ! unless you're some sort of a weirdo.
 
-I DON'T HAVE DNI LIST BUT I BLOCK FREELY! for my interest please do talk to me if you want to know more! : forsaken,blocktales !
+minor so please someone above 18 dni.heavy --
+SPEAK ENG ONLY ! but my english will not as much good since its NOT my first language
+
+I block freely so i hope you can be more careful with your actions towards me ! -- im abit forgetful -- i'm also awkward but im looking forward to meet some new friends !
 
 ![](https://64.media.tumblr.com/6ae71775860c64903649aaa17cc72f3b/52c8af58dd8295df-70/s400x600/ba0b0c639b9093f8406b2858d6eff934208a0e95.pnj)
