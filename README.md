@@ -11,5 +11,8 @@ minor so please someone above 18 heavy dni.,,shippers dni unless friends or unle
 
 I block freely so i hope you can be more careful with your actions towards me ! -- im abit forgetful -- i'm also awkward but im looking forward to meet some new friends !
 
+	plsplspls int I AM SUPERFUN TO TALK WITH once you get to know me better or once we get close  !! ;3
+ im sure we will be a great companion..
+
 tho this is unecessary but i love Ahab , coindebt and MY FRIENDS !!
 ![](https://64.media.tumblr.com/6ae71775860c64903649aaa17cc72f3b/52c8af58dd8295df-70/s400x600/ba0b0c639b9093f8406b2858d6eff934208a0e95.pnj)
