@@ -14,6 +14,8 @@ I block freely so i hope you can be more careful with your actions towards me ! 
 
 pls dont vent dump n selfdoubt dump on me. I'm very sensitive and i wont hesistate to ignore/be rude to you. i feel uncomf w it.
 
+i am a minor so kindly 19 sbove dni,, 
+
 
 HONORABLE MENTION  : @laufufuy @TOILETROTTING 
 SPREAD LOVE TO MY OTHER FRIENDS ! <333
