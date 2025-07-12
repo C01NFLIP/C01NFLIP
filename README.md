@@ -3,3 +3,6 @@
 Check CARRD to know more abt me ! 
 -----
 i whisper/w2i random people alot to make friends , IF I DON'T REPLY BACK AFTER U REPLY I PROBABLY DON'T LIKE  UR TONE..i prefer energetic people to int with .. ^_^
+-----
+![](https://64.media.tumblr.com/f08874fcd064e99dd1d5f4aa909ee98f/1b63648c2a851ba1-d6/s500x750/30454700208799add27616e463bb66b98463e538.pnj)
+drawn by me !! 
