@@ -6,4 +6,4 @@ i whisper/w2i random people alot to make friends , IF I DON'T REPLY BACK AFTER U
 -----
 ![](https://64.media.tumblr.com/f08874fcd064e99dd1d5f4aa909ee98f/1b63648c2a851ba1-d6/s500x750/30454700208799add27616e463bb66b98463e538.pnj)
 drawn by me !! 
-+ also you can req me any character u want me to draw on starwp! 
++ also you can req me any character u want me to draw on starwp! i will draw them on a blocky style..
