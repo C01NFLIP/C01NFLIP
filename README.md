@@ -1,5 +1,23 @@
-hiii 12/10/2025
-![](https://64.media.tumblr.com/12a488e3adfd3113cf1577fa084c4425/77045446314302b9-97/s2048x3072/ad4b2863647bcc5fd0f89934c52e964a74493e5e.pnj)
-@ hi :3 art by me
 
-w2i if need! i don't mind interacting as long as you're not dry. 
+BYF -
+
+-17 dni 
+
+i have a mental issue where i am having identity problems,
+Attachment problems , hypersensitive , memory problem .
+
+Hate this? Ignore me . find a better friend , move on . i am not worth it . Unless you're don't know who to reach out, you can come to me.We can face the problems,together.
+
+fvorites - my lovely boyfriend shed,he took care of me.Roblox games such as blocktales, Project:zombie game,  Survive area 51 , Sad satan, Fnf , forsaken and something evil will happend. 
+ts is where i mostly socialize. 
+
+i don't play ponytown anymore as it's the place i swore to avoid due to old conflicts.I'm using this for people who happends to stumble upon it,if you do ,hi. 
+
+Atabook will not be used.
+Rntry.co are old. 
+pronouns.gg can be observed,thank you. 
+
+Dcord : co1ny
+rblox : thegirlfromjoemama 
+
+goodnight .
